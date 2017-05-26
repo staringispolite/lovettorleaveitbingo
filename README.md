@@ -1,4 +1,4 @@
-\#airportbingo
+Lovett or Leave It BINGO
 =============
 
-Add some cynical fun to your bleak miserable travel experience!
+A straight-shooting play-at-home game, respected by both sides.
